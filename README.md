@@ -11,7 +11,7 @@ strongly interested in working in a fast-paced environment.</p>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Swagh001&label=Profile%20views&color=0e75b6&style=flat" alt="Swagh001" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://shailesh.github.io/](https://shailesh.github.io/)
+- 👨‍💻 All of my projects are available at [https://Swagh001.github.io](https://Swagh001.github.io)
 
 - 💬 Ask me about **React | ChakraUI | Redux | Node.js | Express.js | MongoDB | HTML | CSS | JavaScript | Java**
 
