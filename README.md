@@ -17,7 +17,7 @@ strongly interested in working in a fast-paced environment.</p>
 
 - 📫 How to reach me **shaileshwagh300@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Ec_5llHSVpIsiRKsxcqii_AFW2pl_1do/view?usp=sharing](https://drive.google.com/file/d/1Ec_5llHSVpIsiRKsxcqii_AFW2pl_1do/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zAtukIDFqQawpwiwhbKytrCqMIgY461l/view?usp=sharing](https://drive.google.com/file/d/1zAtukIDFqQawpwiwhbKytrCqMIgY461l/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
